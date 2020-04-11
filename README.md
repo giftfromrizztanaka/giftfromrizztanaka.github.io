@@ -1,1 +1,0 @@
-# giftfromrizztanaka.github.io
